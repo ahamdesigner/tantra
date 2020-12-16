@@ -1,2 +1,2 @@
-# tantra
-digital tantra
+तन्त्र
+
